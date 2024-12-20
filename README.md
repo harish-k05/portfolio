@@ -90,4 +90,4 @@ Feel free to reach out:
 
 Email: harishkece2026@gmail.com
 
-LinkedIn: https://www.linkedin.com/public-profile/settings
+LinkedIn: https://www.linkedin.com/in/harish-kandasamy131605
